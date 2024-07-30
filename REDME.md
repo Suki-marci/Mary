@@ -9,6 +9,9 @@ Meu nome é Maria Eduarda
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 - Sou estudante do ensino médio, cursando o segundo grau.
 
-- ### "você pode conversar comigo" 
-- Mariaeduar266@gmail.com
-![Sukuna sentado](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.icegif.com%2Fryomen-sukuna-22%2F&psig=AOvVaw16DT_VtCadpmHASLazvM6M&ust=1722433485246000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCOii4_HyzocDFQAAAAAdAAAAABAJ)
+ ### "você pode conversar comigo"
+  
+ Mariaeduar266@gmail.com
+
+
+ ![](https://media1.tenor.com/m/B0bfrCrflk0AAAAC/jujutsu-kaisen-ryoumen-sukuna.gif)
